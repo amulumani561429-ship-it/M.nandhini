@@ -14,3 +14,10 @@
 ✨ *Keep learning, keep shining!* ✨
 
 </div>
+## 🎀 My Pink Paradise 💗
+
+✨ Tap for hearts and pink magic! ✨
+
+[💗 Open My Hearts Website](https://M.nandhini.github.io/pink-hearts/)
+
+♡ Made with love and code ♡
